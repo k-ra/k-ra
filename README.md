@@ -5,4 +5,4 @@ thank you for joining. a few things to share: my [art portfolio](https://www.kyr
 warmest,
 kyra
 
-ps: please check out [wecode](https://www.wecodeharvard.com) – the largest student-run conference for women in tech today – and one of the things i'm proudest of. 
+ps: please check out [wecode](https://www.wecodeconference.com) – the largest student-run conference for women in tech today – and one of the things i'm proudest of. 
